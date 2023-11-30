@@ -1,3 +1,1 @@
 Pantsu maru mie
-
-Yeeeeah
